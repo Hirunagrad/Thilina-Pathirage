@@ -1,3 +1,3 @@
-![Thilina Pathirage](me.jpg)
+![Thilina Pathirage](me2.jpg)
 
 ### Hi there 👋
